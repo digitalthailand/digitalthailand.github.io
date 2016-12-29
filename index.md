@@ -1,2 +1,0 @@
-# Digital Thailand Club
-Hello!
